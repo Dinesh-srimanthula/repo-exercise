@@ -1,1 +1,6 @@
-# repo-exercise
+
+i
+Dinesh Goud
+Manchester , Ct 
+Coursera
+
